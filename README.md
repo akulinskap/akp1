@@ -1,0 +1,1 @@
+# Projekt wlasny akp1
